@@ -7,10 +7,10 @@ Since beginning my journey as a Front-end developer, I've done remote work for d
 
 Apart from my ❤️ to coding, I also:
 
-- 🏃 can't leave without a daily dosis of physical activity and a couple of hours of training in gym
-- 💃 dance bachata and salsa
-- 🙌🏻 practice a meditation to concentrate and get my head straight 
-- 🧠 invest my time in self-development and personal growth by getting knowledge in different areas. Psychology, Geography and Economy are the the main pillars I'm focused right now.
+- 🏃  can't leave without a daily dosis of physical activity and a couple of hours of training in gym
+- 💃  dance bachata and salsa
+- 🙌🏻  practice a meditation to concentrate and get my head straight 
+- 🧠  invest my time in self-development and personal growth by getting knowledge in different areas. Psychology, Geography and Economy are the the main pillars I'm focused right now.
 
 I am always open to collaborating on projects and innovative/disruptive ideas. 
 Find out more about me & feel free to connect with me via [e-mail](alexkuchynsk@gmail.com) or [Linked-In](https://www.linkedin.com/in/alexandra-kuchynskaya/).
